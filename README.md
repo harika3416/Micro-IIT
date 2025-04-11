@@ -1,1 +1,1 @@
-Micro IIT
+Micro IIT internship
